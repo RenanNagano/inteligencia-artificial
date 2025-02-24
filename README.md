@@ -1,1 +1,1 @@
-# inteligencia-artificial
+# inteligencia-artificial / Ciência da Computação / Renan Nagano / 
